@@ -1,1 +1,0 @@
-# Gabriel-Dutra-Amaral.github.io
